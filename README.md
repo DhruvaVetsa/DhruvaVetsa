@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DhruvaVetsa12ABC
+- 👀 I’m interested in becomming an ISRO Scientist
+- 🌱 I’m currently learning how to code
